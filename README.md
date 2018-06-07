@@ -1,0 +1,1 @@
+# https-friendlychat-5ccc3.firebaseapp.com
